@@ -2,13 +2,11 @@
 
 By: Erin Blakemore
 
-Temp
-
 The retailer turned everyone into a “Toys ‘R’ Us kid”… by driving its competition out of existence.
 
 ![](https://res.cloudinary.com/aenetworks/image/upload/c_fill%2Car_2%2Cw_3840%2Ch_1920%2Cg_auto/dpr_auto/f_auto/q_auto:eco/v1/gettyimages-526981710-2?_a=BAVAZGID0)
 
-Published: March 19, 2018  
+[Published: March 19, 2018](https://www.history.com/articles/toys-r-us-closing-legacy)
 Last Updated: May 27, 2025
 
 It was 1948, and Charles Lazarus had a hunch. Newly returned from World War II, he knew he wanted to go into business, and he knew---long before the term “baby boom” was a common phrase---that his friends were about to start having lots of babies.
